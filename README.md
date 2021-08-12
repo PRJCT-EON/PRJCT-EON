@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PRJCT-EON
+- 👀 I’m interested in ... Making things make sense
+- 🌱 I’m currently learning ... Electrical Engineering
+- 💞️ I’m looking to collaborate on ... DIY Home Improvement and improvised antisurveillance tech.
+- 📫 How to reach me ... Twitter (@PRJCT_EON)
